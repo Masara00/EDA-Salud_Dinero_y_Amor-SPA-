@@ -1,4 +1,4 @@
-# Salud-DINERO-y-AMOR
+# Salud, DINERO y AMOR
 
 
 TEMA:
